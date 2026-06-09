@@ -1,4 +1,4 @@
-# 
+# 智能 Affinity Designer 预设 Mac OS版 | 顶级 Affinity Designer 预设 PC Windows版。集成 包络扭曲 和 品牌套件，跨平台性能最大化。
 
 
 
